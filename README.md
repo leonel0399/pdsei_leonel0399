@@ -1,2 +1,2 @@
-# pdsei_leonel0399
+# pdsei_2023_leonel_cg
 mi primer proyecto
